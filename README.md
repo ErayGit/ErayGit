@@ -1,5 +1,4 @@
 Hi My name is Eray Gerdts
-![](https://media.giphy.com/media/a93jwI0wkWTQs/giphy.gif)
 ===================================================================================================================================
 
 * 🌍  I'm based in Bremen
